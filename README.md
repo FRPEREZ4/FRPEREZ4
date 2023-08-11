@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FRPEREZ4
+- 👀 I’m interested in technology.
+- 🌱 I’m currently learning about cybersecurity.
+- 💞️ I’m looking to collaborate on anything that where I can learn.
+- 📫 How to reach me I think you can reach me here! 
